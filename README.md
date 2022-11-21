@@ -1,2 +1,0 @@
-# portfolio
-Graphic designer portfolio
